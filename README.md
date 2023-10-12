@@ -1,1 +1,0 @@
-# gero-pagina-2
